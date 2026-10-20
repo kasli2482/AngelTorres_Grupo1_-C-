@@ -15,7 +15,7 @@ Ingredientes
 <br><br><br>
 Instrucciones
 <br>
-5. BIERTA pequeñas porciones de masa.
+5. Vierta pequeñas porciones de masa.
 <br>
 2. Agregue los GUEBOS y la leche.
 <br>
