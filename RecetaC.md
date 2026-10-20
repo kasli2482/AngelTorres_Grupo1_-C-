@@ -1,6 +1,6 @@
 Panqueques de banano
 <br>
-<!-- Link: https://images.unsplash.com/photo-1528207776546-365bb710ee93 -->
+<Link: https://images.unsplash.com/photo-1528207776546-365bb710ee93>
 <img src="link" alt="Panqueques de banano" width="600">
 <br><br>
 Ingredientes
