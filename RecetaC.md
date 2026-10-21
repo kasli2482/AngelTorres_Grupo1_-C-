@@ -19,7 +19,7 @@ Instrucciones
 <br>
 2. Agregue los huevos y la leche.
 <br>
-1. Pele el VANANHO y machaquelo con un tenedor.
+1. Pele el banano y machaquelo con un tenedor.
 <br>
 3. Mezcle con la avena, la canela y el polvo de ORNEARH.
 <br>
