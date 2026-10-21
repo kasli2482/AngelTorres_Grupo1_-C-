@@ -21,7 +21,7 @@ Instrucciones
 <br>
 1. Pele el banano y machaquelo con un tenedor.
 <br>
-3. Mezcle con la avena, la canela y el polvo de ORNEARH.
+3. Mezcle con la avena, la canela y el polvo de hornear.
 <br>
 6. Cocine por ambos lados y SIRBA los panqueques TIVIOS.
 <br>
