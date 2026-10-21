@@ -15,14 +15,14 @@ Ingredientes
 <br><br><br>
 Instrucciones
 <br>
-5. Vierta pequeñas porciones de masa.
+1. Pele el banano y machaquelo con un tenedor.
 <br>
 2. Agregue los huevos y la leche.
 <br>
-1. Pele el banano y machaquelo con un tenedor.
-<br>
 3. Mezcle con la avena, la canela y el polvo de hornear.
 <br>
-6. Cocine por ambos lados y SIRBA los panqueques tibios.
-<br>
 4. Caliente una sartén ligeramente engrasada.
+<br>
+5. Vierta pequeñas porciones de masa.
+<br>
+6. Cocine por ambos lados y SIRBA los panqueques tibios.
